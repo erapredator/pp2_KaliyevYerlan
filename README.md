@@ -1,1 +1,1 @@
-Labs of 1st year student of KBTU
+Laboratories of a first-year student of the Kbtu in the subject of PP2
